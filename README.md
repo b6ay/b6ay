@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @b6ay
+- 👀 I’m interested in Reverse engineering, game hacking.
+- 🌱 I’m currently learning cpp
+- 💞️ I’m looking to collaborate on NOTHING im nonchalant
+- 📫 How to reach me YOU CANNOT
